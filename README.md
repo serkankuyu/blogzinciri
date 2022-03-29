@@ -1,0 +1,2 @@
+# blogzinciri
+Yakında!
